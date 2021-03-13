@@ -19,14 +19,18 @@ gustas compartir.
 
 
 ENG:
-This not a real traduction of everything I wrote in
-spanish, so, I only want to say:
+This not a real traduction of everything 
+I wrote in spanish, so, I only want to say:
 
-If U take something, think u maybe got a problem
-cuz I'm not a 5+ year developer, I'm still learning
-how the hell make funny things with Android.
+If U take something, think u maybe gotta a 
+problem cuz I'm not a 5+ year developer,
+I'm still learning how the hell make 
+funny things with Android.
 
-Sorry for the ugly bad english, but I don't want
-to traslate my shits.
+Sorry for the ugly bad english, 
+but I don't want to traslate all
+my shits of top.
 
 Well see ya
+
+Love Iñaki / jibiriman
